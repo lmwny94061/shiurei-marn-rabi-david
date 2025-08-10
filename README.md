@@ -1,2 +1,2 @@
-# shiurei-marn-rabi-david
+# shiurei-marn-rabi
 אתר השיעורים של מרן הראשון לציון  רבי דוד יוסף שליט"א
